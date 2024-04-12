@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @nadeauagathe
 - 👀 I’m interested in web3 programing
-- 🌱 I’m currently learning crypto and deferent language
+- 🌱 I’m currently learning crypto and different language
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me nadeauagathe31@gmail.com
 - 😄 Pronouns: ...
